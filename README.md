@@ -11,3 +11,5 @@ do you think we should continue to care
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 
 do i have social anxiety, im learning that i dont want to fuck up talking to people
+
+kjrjijfi
