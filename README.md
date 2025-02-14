@@ -12,4 +12,8 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 
 do i have social anxiety, im learning that i dont want to fuck up talking to people
 
-kjrjijfi
+kummilflax
+
+i dont exist
+
+somewhere out there people wish they werent born, me personally i love my life
