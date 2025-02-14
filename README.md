@@ -10,3 +10,6 @@ do you think we should continue to care
 dont be ivan he is a pedophilic nazi
 
 a nazi is a very not nice person
+
+jhonny black hand something something
+hohojo
